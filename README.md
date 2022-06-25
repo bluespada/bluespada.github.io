@@ -1,1 +1,0 @@
-# bluespada.github.io
